@@ -1,1 +1,0 @@
-# big_three_tech_geekathon
